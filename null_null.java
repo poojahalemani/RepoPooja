@@ -1,0 +1,3 @@
+metáforas poéticas e imágenes del fondo de subconsciente y el mundo onírico.
+ De hondo contenido poético, los elementos y figuras de sus obras están tratados con 'licencias poéticas' y los simbolismos utilizados son de tal sutileza, que apresan al espectador, estimulándole la capacidad de interpretar.
+ Esta obra, puede producir cualquier efecto menos la indiferencia; y el lenguaje utilizado, enriquece su lectura. Sus inquietudes eclécticas, provocan esporádicas incursiones en otros estilos: composiciones formalistas, pintura social, expresionismo, etc.
