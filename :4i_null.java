@@ -1,0 +1,3 @@
+A lo largo de su producción, hay gran cantidad de retratos, corno prueba de su predilección por la figura humana; pero incluso esta difícil disciplina, Alemany ha sabido incorporarla al estilo y carácter poético de su obra;
+ interpretando no solo el aspecto físico del personaje, sino su personalidad y perfil psicológico, mediante simbolismos, consiguiendo así un enfoque total y completo del retratado; distinto del concepto convencional del retrato 'académico'.
+Entre los personajes de su labor retratista se cuentan SS.MM. Los Reyes de España, varios miembros de la Familia Real, rectores de Universidades, académicos, Presidentes de Diputaciones, Alcaldes, Decanos de Notaría, Derecho, Medicina… etc. e innumerables particulares
