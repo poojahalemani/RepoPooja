@@ -1,0 +1,7 @@
+Nació el cinco de Enero de 1943 en Gandia (Valencia), cursando los estudios de Bachillerato en el colegio de las Escuelas Pías de esta ciudad.
+ En 1960 ingresó en la Escuela de Artes y Oficios de Valencia haciendo los estudios preparatorios para la Academia de Bellas Artes de San Carlos, donde ingresó en 1961, recibiendo las enseñanzas de Francisco Lozano, Enrique Ginesta, Genaro Lahuerta, Felipe M' Garín, etc.
+En 1965 viaja a París, ampliando estudios con artistas contemporáneos. 
+En 1966 repite esta experiencia, prolongando su estancia en Francia.
+En 1968, amplía estudios en Londres en la National Portrait Gallery. 
+Hasta 1970, viaja y experimenta varias tendencias pictóricas, incidiendo en el abstracto expresionista. En estos años de juventud, abordó muchas tendencias de vanguardia, sumergido en la corriente general, hasta encontrar su propio estilo, cada vez más coherente con su sensibilidad poética. 
+En 1975, pintó las primeras obras de retorno al realismo, intuyendo acertadamente el movimiento asumido y seguido por otros artistas internacionales, bajo el nombre de realismo mágico. Desde 1975 a 1978 se instala en Madrid, alternando los retratos sociales con sus trabajos de contenido surrealista.

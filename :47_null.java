@@ -1,0 +1,2 @@
+El realismo (y en algunas obras hiperrealismo) de Alex Alemany, fue derivando hacia un inconfundible estilo propio, fruto de una introspección personal, distanciándose progresivamente de la frialdad de otros conceptos realistas, deudos de la fotografía, como el realismo americano.
+La obra de Álex Alemany es un nexo entre lo literario y lo pictórico. Buceando en sus propias sensaciones, sentimientos y conceptos, nos los comunica con la credibilidad de su técnica preciosista, haciéndonos participes del clima del cuadro e identificándonos con las cosas que en él nos cuenta: 
