@@ -1,0 +1,2 @@
+La totalidad de su obra pertenece a colecciones privadas y museos. Por principios personales jamás ha participado en concursos ni optado a premio alguno.De 1993 a 2004, presidió el Círculo de Bellas Artes de Valencia.
+ En 1998 fue nombrado Académico Electo de la Real Academia de Cultura Valenciana. En la actualidad vive y trabaja en Valencia.
